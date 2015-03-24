@@ -5,6 +5,7 @@
 * 1 tsp baking powder
 * pinch of salt
 * 3 tsp sugar
+* Blueberries
 
 ### Instructions
 
